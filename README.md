@@ -1,5 +1,5 @@
 Noida Apartments: Comparing Configurations Before You Shortlist
-The number of bedrooms is often the first thing people notice when comparing noida apartments, but it should not be the only factor guiding the shortlist. A 2 BHK, a 2 BHK with a study and a 3 BHK can serve very different household needs even when their overall areas appear relatively close.
+The number of bedrooms is often the first thing people notice when comparing [noida apartments](https://www.crcgroup.in/apartments-in-noida/), but it should not be the only factor guiding the shortlist. A 2 BHK, a 2 BHK with a study and a 3 BHK can serve very different household needs even when their overall areas appear relatively close.
 The more useful comparison is the floor plan itself. Room proportions, carpet area, storage, balconies, kitchen placement and the way different parts of the home connect can have a direct effect on how comfortable the apartment feels after it is furnished.
 What Should You Compare in Noida Apartments?
 
@@ -52,5 +52,5 @@ The Right Configuration Is the One That Fits the Household
 There is no single configuration that works for every family.
 A 2 BHK can be appropriate when two bedrooms cover the household's needs. A 2 BHK + study adds another flexible space, while a 3 BHK provides an additional full bedroom.
 The strongest shortlist comes from matching the floor plan to actual routines rather than choosing by the largest number or the most prominent feature in a brochure.
-For more information about CRC Group's residential developments, visit the CRC Group website. To discuss available homes or arrange a conversation with the team, use the CRC Group contact page.
+For more information about CRC Group's residential developments, [visit the CRC Group website](https://www.crcgroup.in/). To discuss available homes or arrange a conversation with the team, use the[ CRC Group contact page](https://www.crcgroup.in/contact-us/).
 
